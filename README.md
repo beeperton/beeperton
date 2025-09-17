@@ -6,7 +6,7 @@
 
 too dumb to code idk how to do this.. shoutout @soapiwan for help (kind of)
 
-i rlly like star trek, big bang thoery, halo, house md, skam, star wars, n so much more
+i rlly like star trek, big bang theory, halo, house md, skam, star wars, nd so much more
 
 <h6 align="center">
   
