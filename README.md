@@ -12,7 +12,9 @@ i rlly like star trek, big bang theory, halo, house md, skam, star wars, nd so m
   
 ![](https://komarev.com/ghpvc/?username=beeperton&style=plastic&color=ff69b4)
 
-thnx sammy for help w this views count thing :D
+thanx sammy for help w this views count thing :D
+
+check out pronouns page thanx yu kindly
 
 not very talkative, even if i know yu. if i am dry i dont mean to be. usually offtab on ponytown, so w2i is preferred
 
